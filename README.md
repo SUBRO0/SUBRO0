@@ -1,4 +1,4 @@
-<h1 align="center">Hi 👋, I'm PVR Subba Rao</h1>
+<h1 align="center">Hi 👋, Subba Rao Pulipaka </h1>
 
 <br/>
 
